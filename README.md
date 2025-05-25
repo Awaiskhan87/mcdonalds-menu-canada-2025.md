@@ -4,7 +4,7 @@ Discover the full McDonald’s menu with prices in Canada for 2025. From breakfa
 
 Looking for the latest McDonald's Canada menu prices? Whether you're craving a Big Mac, planning your next breakfast combo, or just curious about seasonal McFlurries — this updated 2025 guide has everything in one place.
 
-Visit the full [**mcdonalds menu**](https://mcdonalds-menu-prices.ca) on our website to browse:
+Visit the full [**mcdonalds menu**](https://mcdonalds-menus.ca) on our website to browse:
 
 - 🍔 Burgers & Chicken
 - 🥓 Breakfast Items
